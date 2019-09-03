@@ -5,3 +5,4 @@ martes 3 de Septiembre
 bajamos info
 auxilio vladimir
 ya es tarde
+chau vladimir lo logramos solas
